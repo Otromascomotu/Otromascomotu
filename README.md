@@ -3,9 +3,12 @@
 - 🔭 I’m currently working on Microverse Mini Bootcamp
 
 
-- 🌱 I’m currently learning to become a Full Stack Dev
+- 🌱 I’m currently learning to become a Full Stack Dev 💻
 
 
-Go ahead!!!
+- 😎 I'm currently taking the big leap of my whole life 🔜
 
-My best wish for all of you!
+
+🆙 Go ahead!!! 👨‍💻
+
+My best wish for all of you! 🔝
