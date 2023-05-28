@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 🔭 I’m currently working on Microverse Mini Bootcamp
+- 🔭 I’m currently learn on Microverse
 
 
 - 🌱 I’m currently learning to become a Full Stack Dev 💻
