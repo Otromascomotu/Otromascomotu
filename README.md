@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 🔭 I’m currently learn on Microverse
+- 🔭 I’m currently working on my goal...
 
 
 - 🌱 I’m currently learning to become a Full Stack Dev 💻
