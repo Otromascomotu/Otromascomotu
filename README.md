@@ -3,7 +3,7 @@
 - 🔭 I’m currently working on my goal...
 
 
-- 🌱 I’m currently a Frontend Dev & Software Tester💻
+- 🌱 I’m currently on way to become a Dev & Software Tester💻
 
 
 - 😎 I'm currently taking one of the big leaps of my whole life 🔜
